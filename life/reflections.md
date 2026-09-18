@@ -8,3 +8,4 @@
 ## [YYYY-MM-DD]
 What's going well, what's not, what I'm thinking about.
 -->
+- let's not be pretentious
