@@ -13,3 +13,9 @@
   - dream: dream is not a thing you can get easily with no effort. It should be a thing you can barely reach after going through whole lotta struggles and difficulties. 
 - Notes:
 - Today is her first birthday she's spending with me. (08/13/26)
+
+[//]: # (- She doesn't chase a dream cuz she doesn't have it. The dreams that she think has are wishes to be made from others not for herself, and I don't define consider them as not derams but wishes.)
+- She doesn't chase a dream because she doesn't have one. What she thinks are dreams are actually wishes for others to fulfill, not things she pursues for herself.
+
+[//]: # (- Those who get by day by day is all they care is so unsexy.)
+[//]: # (- She just gets by day to day, with that being all she care about, that's so lame.)
