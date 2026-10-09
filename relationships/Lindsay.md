@@ -2,7 +2,7 @@
 
 - Relationship: life partner
 - What she values:
-  - She tends to stay in comfort zone in general.
+  - She tends to stay in comfort zone most of the time.
 - Why God give me her: 
   - I think God wants me to step away from what many people default to: just grinding and chasing things in this world that you can never really hold on to anyway. 
 - Why God give her me: 
