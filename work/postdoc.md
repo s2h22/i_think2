@@ -74,7 +74,7 @@
 
 <!-- Things that are hard right now — academic, personal, logistical. -->
 - Involutionary meetings with no progress made. This is just discouraging. I got a lesson from it at least tho. 
-- 
+- I gotta juggle this and that; most of them are administrative work, which has nothing to do with research. I need good time management I think. 
 
 ## What I Want to Get Out of This
 
